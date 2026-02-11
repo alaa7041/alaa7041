@@ -1,6 +1,6 @@
 ## Hi I'm Alaa 🌸
 
-# Welcome to my GitHub profile 
+# Just Focusing on myself.
 
 ![Profile Banner](https://github.com/alaa7041/alaa7041/blob/main/ChatGPT%20Image%20Feb%2011,%202026%20at%2010_48_55%20PM.png?raw=true)
 
